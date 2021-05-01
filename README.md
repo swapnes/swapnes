@@ -1,7 +1,7 @@
 Olá pessoas que visitam este perfil...
 
 
-Bem vindas ao meu portfólio
+Bem vindas
 
 
 ```mermaid
