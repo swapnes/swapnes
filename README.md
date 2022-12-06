@@ -6,7 +6,7 @@
 
 ## Eu sou o Gabriel!  ༼ つ ◕_◕ ༽つ
 
- ASPIRANTE A OFICIAL R/2 DO EXÉRCITO ![BrezilyaBrazilFlagGIF](https://user-images.githubusercontent.com/68933347/205901981-bd2821fc-ea5f-460f-b1b7-29364a06124d.gif)
+ ASPIRANTE A OFICIAL R/2 DO EXÉRCITO!!
 
 
 :computer: Sou um estudante de Ciências da Computação!
