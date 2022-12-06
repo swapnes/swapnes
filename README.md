@@ -6,15 +6,14 @@
 
 ## Eu sou o Gabriel!  ༼ つ ◕_◕ ༽つ
 
- 
+ ASPIRANTE A OFICIAL R/2 DO EXÉRCITO ![BrezilyaBrazilFlagGIF](https://user-images.githubusercontent.com/68933347/205901981-bd2821fc-ea5f-460f-b1b7-29364a06124d.gif)
+
 
 :computer: Sou um estudante de Ciências da Computação!
 
 :house_with_garden: Atualmente morando no Brasil.
 
 :books: Como sempre eu estou tentando aprender um pouco de tudo, as áreas que mais gosto são Pentest e Programação / Qualquer tipo de desenvolvimento.
-
-:outbox_tray: Minha meta para 2021/2022 é deixar meu curriculo cheio de conhecimento e técnicas novas
 
 ## Sobre mim:
 
